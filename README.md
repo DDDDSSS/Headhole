@@ -1,4 +1,4 @@
 Headhole
 ========
 
-Headholes of teddy, russell and heather
+Headholes of teddy, russell and doran
